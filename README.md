@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm studing AI and data science and i'm curntly looking for an internship for end of study<br>
+i'm studing AI and data science <br>
 
 
 ## 🌐 Socials:
